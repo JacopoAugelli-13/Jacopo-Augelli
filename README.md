@@ -8,7 +8,7 @@ Attualmente sto affinando le mie competenze presso l'Accademia Boolean.
 Il mio obiettivo è crescere professionalmente ed esplorare sempre nuovi linguaggi e tecnologie.
 Sempre pronto a mettermi in gioco, imparare cose nuove e collaborare a nuovi progetti!
 
-📫 [Contattami] per confronti, collaborazioni o semplicemente per fare due chiacchiere sul tech!
+📫 "[Contattami]" per confronti, collaborazioni o semplicemente per fare due chiacchiere sul tech!
 
 ---
 
